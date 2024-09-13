@@ -19,7 +19,6 @@ youtube 视频下载 在线
 [不能再消息闭塞了！保存youtube视频的超简单方法都快人尽皆知了！你还不快来学！](https://www.bilibili.com/read/cv33816747/)<br>
 [哇呜！保存youtube的4k高清视频原来这么容易！可把我高兴坏了！](https://www.bilibili.com/read/cv34673945/)<br>
 [youtube多国语言字幕下载的方法可算被我发现了！现在下载字幕可太方便了吧！](https://www.bilibili.com/opus/936118397392912452)<br>
-https://zhuanlan.zhihu.com/p/698781298太6了！保存youtube的4k视频居然这么容易！惊呆了老铁！
 [如何保存高清youtube视频的秘密已被我知晓！想知道的速速点进来！](https://www.douban.com/note/861322363/?_i=3165959JwUImUk)<br>
 [快来看！教你轻松保存youtube4k高清视频的方法啦！](https://www.douban.com/note/862446148/?_i=6189715JwUImUk,6193992JwUImUk)<br>
 [youtube多国语言字幕下载的方法你还不知道？那快进来看呀！](https://www.douban.com/note/862669305/?_i=6798049PemIIrv,6798052PemIIrv)<br>
